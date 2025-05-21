@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @fantom-x7
+- 👀 I’m interested in gamedev and blockchain tech
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on 
+- 📫 Discord - _fantomx
+- 😄 Pronouns: He/Him
